@@ -1,2 +1,8 @@
 # hello-world
-Github Guidelines
+
+Hi! 
+
+Jenn Carlisle 
+
+Taking ex courses online! 
+
